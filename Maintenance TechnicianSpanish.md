@@ -14,7 +14,7 @@ __Tipo de Posición__: Tiempo Completo
 Esta posición es responsable de realizar mantenimiento preventivo y no programado en las instalaciones, maquinaria y equipo en la planta de Karavan en Fox Lake.
 
 #### ROL Y RESPONSABILIDADES
-<li>Trabajar como parte del equipo con todos los niveles de la organización y contribuir a elevar continuamente la capacidad/capacidad organizativa para alcanzar nuevos niveles de rendimiento.</li>
+<li>Trabajar como parte del equipo con todos los niveles de la organización y contribuir a elevar continuamente la Competencia/Capacidad organizativa para alcanzar nuevos niveles de rendimiento.</li>
 <li>Mantiene un ambiente de trabajo seguro y limpio cumpliendo con los procedimientos, reglas y regulaciones.</li>
 <li>Instala, repara y mantiene maquinaria y equipo mecánico completando mantenimiento preventivo.</li>
 <li>Localiza fuentes de problemas observando dispositivos mecánicos en operación.</li>
