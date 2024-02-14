@@ -1,4 +1,4 @@
-__Título del Puesto__: Operador de Láser para Tubos
+__Título del Puesto__: Representante de Servicio al Cliente
 
 __Ubicación__: Fox Lake
 
